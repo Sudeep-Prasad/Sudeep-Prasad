@@ -9,7 +9,6 @@
 
 ###
 <div class="tenor-gif-embed" data-postid="6354342076960136984" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/work-office-computer-penguin-job-gif-6354342076960136984">Work Office Sticker</a>from <a href="https://tenor.com/search/work-stickers">Work Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
-<img align="right" height="150" src="https://tenor.com/view/work-office-computer-penguin-job-gif-6354342076960136984"  />
 
 ###
 
