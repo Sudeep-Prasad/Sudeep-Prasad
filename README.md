@@ -1,5 +1,4 @@
-# 💫 About Me:
-Hello all, I'm Sudeep who is pursuing under graduate degree in New Horizon College.<br> I live in Bangalore,<br> India I love to learn new technologies.
+
 
 
 ## 🌐 Socials:
